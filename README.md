@@ -1,2 +1,6 @@
-oi meu nome é felipe
-estudo no cólegio estadual josé siqueira rosas
+boas vindas ao meu perfil!!!
+
+meu nome é FELIPE
+
+estudo no Cólegio Estadual Jóse Siqueira Rosas 
+
